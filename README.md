@@ -58,6 +58,8 @@ They would want to move quickly, at a pace at which government doesn't usually m
 
 What to do? Maybe the following, for starters:
 
+Preemptively grant every concession Russia asks for in putative "peace negotiations" with Ukraine, and immediately halt aid to Ukraine (including stopping shipments already _en route_)
+
 Deport scientists who fled Russia in opposition to the invasion of Ukraine back to Russia
 
 Undermine and weaken US intelligence-gathering capability by exposing agents' identities, declassifying and releasing documents, consistently calling into question the actions of intelligence agencies, and appointing people to head the CIA and FBI who are opposed to those organizations for their own personal reasons
