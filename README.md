@@ -36,7 +36,7 @@ They took care of me in my time of need; now they're holding a marker. If they c
 
 Life goes on and things change. I attain celebrity status in the US, partially through television shows and the gossip mill that surrounds celebrities, talking about the amazing parties I throw and my trophy wife. I get away with all sorts of things that would land a regular person in prison, or at least cause people to shun them.
 
-No matter what I do, people love me. For instance, one of my ardent supporters made a T-shirt for herself with an arrow pointing downward and the phrase, "Trump can grab my pussy." The idea took off and became a product line (https://www.teeshirtpalace.com/products/trump-can-grab-my-pussy-arrow-2020-election-women's-v-neck-t-shirt_tcgm384-wvt?color=black&size=L). It's still selling pretty well! That goes to show what American women really want.
+No matter what I do, people love me. For instance, one of my ardent supporters made a T-shirt for herself with an arrow pointing downward and the phrase, "Trump can grab my pussy." The idea took off and became a product line [](https://www.teeshirtpalace.com/products/trump-can-grab-my-pussy-arrow-2020-election-women's-v-neck-t-shirt_tcgm384-wvt?color=black&size=L). It's still selling pretty well! That goes to show what American women really want.
 
 In the mid-2010s the things I say publicly resonate with certain segments of the US populace. I run for President on a lark and to my surprise, I win. But I'm not prepared; I don't know what to do as President, and I lose the next election. 
 
