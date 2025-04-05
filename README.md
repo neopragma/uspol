@@ -150,7 +150,7 @@ Terrorize people by deporting "undesirables" without due process of law, not to 
 
 Pay private detention centers in the US by the head as a way to encourage them never to release anyone once they have them in custody
 
-Terrorize the general population by deploying armed, masked "officers" whose uniforms bear no insignia or other indication of their law enforcement function to collect people from their homes in the middle of the night or from the street in broad daylight, without warrants, without charges, and without due process of law
+Terrorize the general population by deploying armed, masked "officers" whose uniforms bear no insignia or other indication of their law enforcement function to collect people from their homes in the middle of the night or from the street in broad daylight, and from churches, hospitals, and schools, without warrants, without charges, and without due process of law
 
 Simultaneously (a) terrorize "undesirables" and (b) undermine the moral fabric of American society by forcibly separating children from their parents without due process of law and with no possibility of their reuniting in future
 
