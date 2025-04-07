@@ -144,6 +144,8 @@ Dishonor the military by requiring Arlington National Cemetery and the Departmen
 
 Erase the national cultural history of the US by forcing the Smithsonian Institution to adhere to specified ideological requirements
 
+Seek to erase the memory of the past cultures of indigenous people by renaming sites that have native names
+
 Terrorize people by deporting "undesirables" without due process of law, not to their home countries but to a special foreign prison facility notorious for torturing and "disappearing" people, with no contact with legal cousel, their families, or their embassies; pay the prison operators by the head so they are incentivized to hold prisoners indefinitely
 
 Pay private detention centers in the US by the head as a way to encourage them never to release anyone once they have them in custody
