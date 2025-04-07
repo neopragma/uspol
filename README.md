@@ -108,8 +108,6 @@ Purge the military and other public institutions of anyone who might oppose the 
 
 Pardon insurrectionists and propose using taxpayers' money to reward them financially
 
-Seek to eliminate the Social Security program, leaving American seniors destitute, homeless, and unable to access necessary medical care, as much to terrorize the next generation as to harm the seniors directly
-
 Cancel funding of Social Security benefits for disabled children, accompanied by public declarations that "empathy" is a cause of civilizational collapse
 
 Facilitate the rapid deterioration of US natural resources by ending regulations and standards pertaining to environmental stewardship 
